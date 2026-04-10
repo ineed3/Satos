@@ -12,4 +12,5 @@
 
 **Você** pode utilizar o **Zatic** agora mesmo, **basta entrar no nosso site oficial**, **ler como obter e entrar no nosso servidor** de **discord**.
 
--# oi
+Satos™ - Todo os direitos reservados
+Patrocinadores: CBQ Organization, Selective Distribution License (SDL), Grupo Brasileiro de Integridade Digital (GBID).
