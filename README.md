@@ -8,4 +8,8 @@
 **Não**, você **não toma banimento** ao utilizar o Zatic. Nós **projetamos um anti ban** tanto no **Zatic**, e **Zatic Gold** que impede que **você tome algum tipo de banimento possível.** **Você somente consegue ter banimento caso você permaneça** em **servidores que mandam coisas ilícitas e ilegais**. Já isso, Satos não tem **absolutamente nenhuma culpa disso.**
 
 # 4. Satos - É confiável utilizar o Zatic?
-**Sim**, é confiável utilizar o Zatic, pós não coletamos nenhuma informação sua do Zatic. a Satos é sobre a 
+**Sim**, é **confiável utilizar o Zatic**, pós em sua **utilização do aplicativo**, não é coletado nenhuma informação sua do aplicativo. a Satos é sobre a GBID (**Grupo Brasileiro de Integridade Digital**), então por isso **não** e **nunca** iremos **coletar suas informações**. Por isso, **não é confiável abaixar o Zatic** em **sites suspeitos ou estranhos**, ou em **servidores**. **Saiba mais no nosso servidor**.
+
+**Você** pode utilizar o **Zatic** agora mesmo, **basta entrar no nosso site oficial**, **ler como obter e entrar no nosso servidor** de **discord**.
+
+-# oi
