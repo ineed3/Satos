@@ -6,3 +6,6 @@
 
 # 3. Satos - Eu posso tomar banimento?
 **Não**, você **não toma banimento** ao utilizar o Zatic. Nós **projetamos um anti ban** tanto no **Zatic**, e **Zatic Gold** que impede que **você tome algum tipo de banimento possível.** **Você somente consegue ter banimento caso você permaneça** em **servidores que mandam coisas ilícitas e ilegais**. Já isso, Satos não tem **absolutamente nenhuma culpa disso.**
+
+# 4. Satos - É confiável utilizar o Zatic?
+**Sim**, é confiável utilizar o Zatic, pós não coletamos nenhuma informação sua do Zatic. a Satos é sobre a 
